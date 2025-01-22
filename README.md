@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Data analytics project
 - 📫 How to reach me ayousufsid@gmail.com
 - 😄 Pronouns: HE/Him
-- ⚡ Fun fact: I love Football (soccer) and looking ahead for the World Cup.
+- ⚡ Fun fact: I love Football (soccer) and love doing street photography, looking through a unique perspective!
 
 <!---
 ayousufsid/ayousufsid is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
